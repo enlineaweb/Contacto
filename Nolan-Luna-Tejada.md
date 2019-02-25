@@ -2,7 +2,27 @@ Contacto con Nolan Luna Tejada Via Internet
 --------------------------------------------
 http://bit.ly/2FSyf6t
 --------------------------------------------
-Para Los Siguientes Servicios
+Información de Internet y Computación a Cambio de Donación en Dólar y Bitcoin
+--------------------------------------------
+Envío Información vía email Acerca de:
+--------------------------------------------
+_ Programas útiles
+--------------------------------------------
+_ Entretenimiento en Internet
+--------------------------------------------
+_ Trabajo en Internet
+--------------------------------------------
+_ Alojamiento de sitio web
+--------------------------------------------
+_ Recursos gratis
+--------------------------------------------
+_ Antivirus
+--------------------------------------------
+Y otros temas relacionados.
+--------------------------------------------
+Para saber más deja tu email 
+--------------------------------------------
+Contacto También Para Los Siguientes Servicios
 --------------------------------------------
 https://tinyurl.com/desde1dolar
 --------------------------------------------
