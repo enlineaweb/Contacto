@@ -14,6 +14,10 @@ _ Trabajo en Internet
 --------------------------------------------
 _ Alojamiento de sitio web
 --------------------------------------------
+_ Comprar en Internet
+--------------------------------------------
+_ Comprar Arte Original y Reproducción
+--------------------------------------------
 _ Recursos gratis
 --------------------------------------------
 _ Antivirus
